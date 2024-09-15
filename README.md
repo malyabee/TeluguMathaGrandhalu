@@ -1,0 +1,2 @@
+# TeluguMathaGrandhalu
+Telugulo mathagrandalu
